@@ -1,1 +1,1 @@
-[Instagram](https://instagram.com]
+[GitHub](http://github.com)
